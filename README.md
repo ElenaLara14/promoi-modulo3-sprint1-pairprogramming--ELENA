@@ -1,1 +1,1 @@
-# promoi-modulo3-sprint1-pairprogramming-LAIA-ELENA
+# promoi-modulo3-sprint2-pairprogramming-LAIA-ELENA
